@@ -1,2 +1,8 @@
 # bloodbond
+
+血 blood; ( radical number 143 )
+带 belt, girdle, band, strap, zone
+聯 connect, join; associate, ally
+繫 attach, unite, fasten
+
 short-term cerebral palsy
